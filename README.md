@@ -1,2 +1,0 @@
-# vasilisinpoland
-# geaglampings.com
